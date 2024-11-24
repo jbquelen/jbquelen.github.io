@@ -16,6 +16,9 @@ Here is what I have lately baked
 
 
 ## October 2024
+### [Sables au chocolat](https://youtu.be/2kvMmOOb8xA?si=zEOrPKbVTRkHuBjF)
+![sables 1](images/sable.choco.oct2024.jpg)
+![sables 2](images/sable.choco.bcp.oct2024.jpg)
 
 ### [Cookies](https://youtu.be/d99aIVqp6G4?si=_v9QWG7aQoPtyDlX)
 ![cookies 1](images/cookies.noix2.oct2024.jpg)
