@@ -17,16 +17,16 @@ Here is what I have lately baked
 
 ## October 2024
 
-### Cookies
+### [Cookies](https://youtu.be/d99aIVqp6G4?si=_v9QWG7aQoPtyDlX)
 ![cookies 1](images/cookies.noix2.oct2024.jpg)
 ![cookies 2](images/cookies.noix.oct2024.jpg)
 ![cookies 3](images/cookies.noix3.jpg)
 
-### Macarrons
+### [Macarrons](https://youtu.be/LxJWH5Ha1O8?si=gr6eo2muIHNSLdw5)
 ![macarrons 1](images/macarron.choco.oct2024.jpg)
 ![macarrons 2](images/macarron.choco2.oct2024.jpg)
 
-### Babka
+### [Babka](https://youtu.be/DtH12q0zld8?si=J6wOC72anMkx6Kp1)
 ![babka](images/babka.oct2024.jpg)
 
 ## September 2024
