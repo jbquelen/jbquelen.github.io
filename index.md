@@ -34,9 +34,12 @@ Here is what I have lately baked
 
 ## September 2024
 
-### Entremet pomme cannelle vanille
-![entremet pomme cannelle](images/entremet.pomme.cannel.sept2024.jpg)
+### Entremet pomme cannelle vanille noisette
+![entremet pomme cannelle 1](images/pomme.cannelle.1.png)
+![entremet pomme cannelle 2](images/pomme.cannelle.2.png)
+![entremet pomme cannelle 3](images/pomme.cannelle.coupe.png)
 
-### Cheesecake
+
+### Cheesecake au zest de citron vert
 ![cheesecake 1](images/cheesecake.sept2024.jpg)
 ![cheesecake 2](images/cheesecake2.sept2024.jpg)
