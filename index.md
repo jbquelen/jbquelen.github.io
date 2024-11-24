@@ -3,14 +3,14 @@ layout: page
 title: "Blog"
 ---
 
-Here is what I baked lately
+Here is what I have lately baked
 
 ## November 2024
 
-### Perles coco
+### [Perles coco](https://youtu.be/m5UuLaUQSRw?si=O1IObde6DWH6_A0m)
 ![perle coco](images/perle.coco.bcp.nov2024.jpg)
 
-### Chocolatines
+### [Chocolatines](https://youtu.be/XJ4DXWmig-Q?si=N5pPUd1BcpyPiPd6)
 ![chocolatine 1](images/chocolatines.nov2024.jpg)
 ![chocolatine 2](images/chocolatines.bcp.nov2024.jpg)
 
