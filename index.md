@@ -39,7 +39,43 @@ Here is what I have lately baked
 ![entremet pomme cannelle 2](images/pomme.cannelle.2.png)
 ![entremet pomme cannelle 3](images/pomme.cannelle.coupe.png)
 
-
 ### Cheesecake au zest de citron vert
 ![cheesecake 1](images/cheesecake.sept2024.jpg)
 ![cheesecake 2](images/cheesecake2.sept2024.jpg)
+
+### Tiramisu
+![tiramisu](images/tiramisu.sept2024.jpg)
+
+## August 2024
+
+### Verrines vanille praline noisette
+![verrines 1](images/verrines1.jpg)
+![verrines 2](images/verrines2.jpg)
+
+## July 2024
+
+### Choux avec craquelin
+![choux 1](images/choux1.jpg)
+![choux 2](images/choux.bcp.jpg)
+
+### Tartelettes chocolat creme patissiere
+![tartechoco 1](images/tartelette.choco1.jpg)
+![tartechoco 2](images/tartelette.choco2.jpg)
+
+## May 2024
+
+### Muffins au chocolat
+![muffinchoco](images/muffin.chocolat.jpeg)
+
+### Tarte framboise et tartelettes aux fraises
+![tarte framb](images/tarte.framboises.jpg)
+![tartelette fraise 1](images/tartelette.fraise1.jpg)
+![tartelette fraise 1](images/tartelette.fraise2.jpg)
+
+## March 2024
+
+### Cake noisettes
+![cake noisettes](images/cake.noisettes.jpg)
+
+### Tarte aux fraises
+![tarte fraises](images/tarte.fraises.jpg)
