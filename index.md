@@ -5,6 +5,20 @@ title: "Blog"
 
 Here is what I have lately baked
 
+## January 2025
+### Occhi di bue
+![occhi bcp](images/occhi.bcp.jan2025.jpg)
+![occhi seul](images/occhi.seul.jan2025.jpg)
+
+### Galette des rois
+![galette entière](images/galettedesrois.jan2025.jpg)
+![part de galette](images/part.galettedesrois.jan2025.jpg)
+
+### Cake au sésame, crème diplomate à la vanille, praliné noisette
+![cake au sesame coupé seul](images/gateau.sesame.jan2025.jpg)
+
+
+
 ## November 2024
 
 ### [Perles coco](https://youtu.be/m5UuLaUQSRw?si=O1IObde6DWH6_A0m)
