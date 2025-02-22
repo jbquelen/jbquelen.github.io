@@ -17,6 +17,19 @@ Here is what I have lately baked
 ### Cake au sésame, crème diplomate à la vanille, praliné noisette
 ![cake au sesame coupé seul](images/gateau.sesame.jan2025.jpg)
 
+## February
+### Chinois (brioche fourrée à la crème patissière)
+![chinois](images/chinois.feb2025.jpg)
+
+### Cookies aux noix de pécan
+![cookies pécan](images/cookie.pecan.seul.feb2025.jpg)
+![cookies pécan](images/cookies.pecan.bcp.feb2025.jpg)
+
+
+
+
+
+
 
 
 ## November 2024
