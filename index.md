@@ -5,7 +5,7 @@ title: "Blog"
 
 Here is what I have lately baked
 
-## February
+## February 2025
 ### Chinois (brioche fourrée à la crème patissière)
 ![chinois](images/chinois.feb2025.jpg)
 
