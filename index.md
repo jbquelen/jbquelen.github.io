@@ -22,7 +22,7 @@ Here is what I have lately baked
 ![galette entière](images/galettedesrois.jan2025.jpg)
 ![part de galette](images/part.galettedesrois.jan2025.jpg)
 
-### Cake au sésame, crème diplomate à la vanille, praliné noisette
+### [Cake au sésame, crème diplomate à la vanille, praliné noisette](https://youtu.be/ubGVMVX9yaU?si=ZwGAdphSKSNWp5iG)
 ![cake au sesame coupé seul](images/gateau.sesame.jan2025.jpg)
 
 ## November 2024
