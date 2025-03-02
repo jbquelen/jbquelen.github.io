@@ -9,7 +9,7 @@ Here is what I have lately baked
 ### Chinois (brioche fourrée à la crème patissière)
 ![chinois](images/chinois.feb2025.jpg)
 
-### Cookies aux noix de pécan
+### [Cookies aux noix de pécan](https://youtu.be/hQPpz7G9fLk?si=6C92r74RMCKaJBA7)
 ![cookies pécan](images/cookie.pecan.seul.feb2025.jpg)
 ![cookies pécan](images/cookies.pecan.bcp.feb2025.jpg)
 
